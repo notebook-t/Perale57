@@ -3,9 +3,9 @@
 - 🌱 I’m currently learning ... Open source programming language through GitHub.
 - 💞️ I’m looking to collaborate on ... Rather ... I am looking for someone to join my project and help me find possible solutions to the problems faced by music and musicians along with it. 
 - 📫 How to reach me ... Contact me via email entretenimientomusical7@gmail.com 
-WhatsApp https://wa.me/qr/VZGWS4SFXA57O1 
-Facebook https://www.facebook.com/rememwerday/
-https://www.facebook.com/rememwer/
+Añádeme como contacto en WhatsApp. https://wa.me/qr/UHXL7ZETKFSLP1
+Facebook (EDUCACIÓN RAMDOMEX OFICIAL). https://www.facebook.com/rememwerday/
+Facebook (RHYTHMS SOUNDERS MUSIC ™). https://www.facebook.com/rememwer/
 
 
 
